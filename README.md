@@ -60,7 +60,7 @@ In the competitive landscape of vacation rental management software, Sangvish st
 
 Final Notes, [Sangvish](https://sangvish.com/) is your trusted partner for [vacation rental script](https://sangvish.com/vacation-rental-script/) needs. With our proven expertise, customizable solutions, comprehensive features, user-friendly interface, dedicated support, affordable pricing, and future-proof solutions, we have everything you need to succeed in the dynamic world of vacation rentals. Choose Sangvish and take your vacation rental business to new heights today!"
 
-For more information and to get started, visit [ [https://sangvish.com/vacation-rental-script/](https://sangvish.com/vacation-rental-script/)] or 
+get our **LIVE DEMO** -https://sangvish.com/vacation-rental-script/ 
 
 contact us at,
 
